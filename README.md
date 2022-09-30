@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything but nothing at the same time
 - 🌱 I’m currently learning how to study
 - 💞️ I’m looking to collaborate on countless on project once I know how to do stuff
-- 📫 How to reach me? Dunno my dc is 夢見#2816
+- 📫 How to reach me? Dunno my dc is Tomíno#7777
 
 <!---
 Tomeeno/Tomeeno is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
